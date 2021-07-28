@@ -1,7 +1,8 @@
 jello // 17
 
 istp 9w8 (936) chao-neu sp/so chol-phleg
-aries ? sag ? scorpio ?
+
+aries ☉ sag ☾ scorpio ↑
 
 basic dni criteria but idrc lol
 
