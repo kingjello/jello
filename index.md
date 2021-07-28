@@ -1,37 +1,10 @@
-## Welcome to GitHub Pages
+jello // 17
 
-You can use the [editor on GitHub](https://github.com/kingjello/king/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+istp 9w8 (936) chao-neu sp/so chol-phleg
+aries ? sag ? scorpio ?
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+basic dni criteria but idrc lol
 
-### Markdown
+**interests** ryn lol,, marvel, rhythm games, idk brain pretty empty, animanga (( — — ))..zzzZZ, [tea](https://www.instagram.com/p/B_m_7qHg3HC/?utm_source=ig_web_copy_link), [music (guitar...)](https://open.spotify.com/playlist/2ds3f0K6zsRIup6XfklfMG?si=d96ac987099b475c), frogs... and snakes yah, valorant every other day, pinkpantheress...
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/kingjello/king/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+byf sometimes i log out for long(?) periods of time but usually im fairly good w dms
